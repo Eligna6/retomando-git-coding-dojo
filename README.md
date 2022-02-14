@@ -31,10 +31,12 @@ La Biblia de las Américas.
 
 Conclusión
 
-     9 El Predicador, además de ser sabio, enseñó también sabiduría al pueblo; y ponderó, investigó y compuso muchos proverbios. 10 El Predicador trató de encontrar palabras agradables, y de escribir correctamente palabras de verdad.
-     11 Las palabras de los sabios son como aguijones, y como clavos bien clavados las de los maestros de colecciones, dadas por un Pastor. 12 Pero además de esto, hijo mío, estate prevenido: el hacer muchos libros no tiene fin, y demasiada dedicación a ellos es fatiga del cuerpo.
+     9 El Predicador, además de ser sabio, enseñó también sabiduría al pueblo; y ponderó, investigó y compuso muchos proverbios. 
+     10 El Predicador trató de encontrar palabras agradables, y de escribir correctamente palabras de verdad.
+     11 Las palabras de los sabios son como aguijones, y como clavos bien clavados las de los maestros de colecciones, dadas por un Pastor. 
+     12 Pero además de esto, hijo mío, estate prevenido: el hacer muchos libros no tiene fin, y demasiada dedicación a ellos es fatiga del cuerpo.
      13 La conclusión, cuando todo se ha oído, es ésta:
-           teme a Dios y guarda sus mandamientos,
+          teme a Dios y guarda sus mandamientos,
           porque esto concierne a toda persona.
      14 Porque Dios traerá toda obra a juicio,
           junto con todo lo oculto,
